@@ -1,1 +1,1 @@
-## Designed And Developed By Kshitiz 🎯
+## Designed And Developed By Kshitiz Khandal 🎯
